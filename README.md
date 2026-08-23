@@ -24,3 +24,5 @@
 <img src="https://file.garden/amjClnAAXW4qEKsH/IMG_1097.jpg" width="300" alt="Description"><br>
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=15&duration=2500&pause=198&color=DCDCDCBB&center=true&vCenter=true&multiline=true&width=435&lines=%CA%B0%E1%B5%92%CA%B7+%E1%B6%9C%E1%B5%92%E1%B5%98%CB%A1%E1%B5%88+%E1%B5%90%CA%B8+%E1%B5%88%E1%B5%83%CA%B8+%E1%B5%87%E1%B5%89+%E1%B5%87%E1%B5%83%E1%B5%88+;%CA%B7%CA%B0%E1%B5%89%E2%81%BF+%E1%B6%A6%E1%B5%90+%CA%B7%E1%B6%A6%E1%B5%97%CA%B0+%CA%B8%E1%B5%92%E1%B5%98%E1%B5%98+" alt="Typing SVG" /></a>
+<br><br>
+<a href="https://taeui.atabook.org/">![](https://file.garden/amjClnAAXW4qEKsH/Untitled89_20260809173926%20(1).png)</a>
