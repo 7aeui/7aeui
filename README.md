@@ -1,28 +1,25 @@
-<div id="text" align="center">
+<div id="text">
 
-#### <p align="center"><img src="https://komarev.com/ghpvc/?username=tigersprint&style=plastic&color=151723&label=ㅤmintㅤberriesㅤ&base=10000" width="120" height="19" alt="Description">⠀  ⠀<sup>matching with cas</sup>
-
-
-카스　˳　 kiᥲn ⠀﹒ ⠀15tᥱᥱn ⠀ㅤ( ⸝⸝´꒳`⸝⸝)⠀  ۫⠀
+<img src="https://file.garden/amjClnAAXW4qEKsH/Untitled97_0017-23-11_20260827123341__fliter--x-rays__channel--all__mode--overlay.png" width="400" align="left">
 <br>
-<details>
-  <summary><sub>⠀click⠀me⠀for⠀more</sub></summary>
-   <br>  <sup>matching duo!!!</sup>
+<img src="https://komarev.com/ghpvc/?username=tigersprint&style=plastic&color=1B1D30&label=ㅤtwitchㅤviewsㅤ&base=10000" width="120" height="19" alt="Description">⠀  ⠀<sup>sign my atabook</sup>
+
+<br>
+ <a href="https://rentry.co/iItae"><img src="https://file.garden/amjClnAAXW4qEKsH/Untitled97_0017-23-11_20260829145922.png" width="130"/><a href="https://taeui.atabook.org/"><img src="https://file.garden/amjClnAAXW4qEKsH/Untitled97_0017-23-11_20260829145846.png" width="120"/>
+<br> <details> <summary> <sup>${\textsf{\color{#CA4596} click　\color{#B83F92} 4　\color{#A6398D} more　\color{#943389} info　\color{#812E85} or　\color{#6F2881} view　\color{#5D227C} my　\color{#4B1C78} accounts }}$ </sup>
+</a> </summary> 
+ 
+ <sub>${\textsf{\color{#CA4596} c+h　\color{#B83F92} and　\color{#A6398D} int　\color{#943389} freely　\color{#812E85} unless　\color{#6F2881} i　\color{#5D227C} have　\color{#4B1C78} dni }}$ </sub><br>
+<sup>${\textsf{\color{#CA4596} normally　\color{#B83F92} in　\color{#A6398D} safe　\color{#943389} server　\color{#812E85} at　\color{#6F2881} mcyt　\color{#5D227C} or　\color{#4B1C78} docks }}$ </sup>
+  <br> <sub>1. ${\textsf{\color{#CA4596} oo\color{#AA3B8F}mfs　\color{#8B3187} in　\color{#6B2680} follow\color{#4B1C78}ing  }}$ </sub>
   <br>
-  <a href="https://github.com/charming-xiaomao"><sup>cas</sup></a>
-   <br>
-  <a href="https://github.com/matchingduo"><sup>me and cas’s shared account </sup>
-<br>
-   <a href="https://github.com/biggietrio"><sup>me and my trio's shared account </sup>
+  <a href="https://github.com/charming-xiaomao"><sub>cas  matching duo</sub></a>  ⠀ <a href="https://github.com/IyricaI"><sub>alic  sibling duo</sub></a>
   <br> <br>
-<img src="https://file.garden/amjClnAAXW4qEKsH/IMG_1102.jpg" width="200" alt="Description"><br>
-    
-<a href="https://rentry.co/mintberries-_-">![](https://file.garden/amjClnAAXW4qEKsH/Untitled89_20260809173935%20(1).png)</a>
-    
-</details>
-
-<img src="https://file.garden/amjClnAAXW4qEKsH/IMG_1097.jpg" width="300" alt="Description"><br>
-
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=15&duration=2500&pause=198&color=DCDCDCBB&center=true&vCenter=true&multiline=true&width=435&lines=%CA%B0%E1%B5%92%CA%B7+%E1%B6%9C%E1%B5%92%E1%B5%98%CB%A1%E1%B5%88+%E1%B5%90%CA%B8+%E1%B5%88%E1%B5%83%CA%B8+%E1%B5%87%E1%B5%89+%E1%B5%87%E1%B5%83%E1%B5%88+;%CA%B7%CA%B0%E1%B5%89%E2%81%BF+%E1%B6%A6%E1%B5%90+%CA%B7%E1%B6%A6%E1%B5%97%CA%B0+%CA%B8%E1%B5%92%E1%B5%98%E1%B5%98+" alt="Typing SVG" /></a>
-<br><br>
-<a href="https://taeui.atabook.org/">![](https://file.garden/amjClnAAXW4qEKsH/Untitled89_20260809173926%20(1).png)</a>
+   <sub>2.  ${\textsf{\color{#CA4596} my \color{#AA3B8F} acco\color{#8B3187}unts　\color{#6B2680} wa\color{#4B1C78}hh  }}$ </sub>
+  
+  <a href="https://github.com/7aeui"><sup>second main account</sup>
+  <br>
+  <a href="https://github.com/iItae"><sup>following account</sup>
+ </details>
+ 
+<img src="https://file.garden/amjClnAAXW4qEKsH/Untitled97_0017-23-11_20260829144053__fliter--x-rays__channel--red__mode--overlay.png" width="250" align="left"/>
