@@ -28,15 +28,19 @@
 <br><br><br><br><br><br>
     
 <div align="left">
-<img src="https://file.garden/amjClnAAXW4qEKsH/Untitled97_0017-23-11_20260829184433__fliter--x-rays__channel--red__mode--overlay.png" width=340" align="left">
+<img src="https://file.garden/amjClnAAXW4qEKsH/Untitled98_20260829194649__fliter--x-rays__channel--red__mode--overlay.png" width=335" align="left">
+
+ <br>
  
-<br>‎<br><br>
   <details>
  <summary><sup>${\textsf{\color{#CA4596} before　\color{#B83F92} u　\color{#A6398D} interact　\color{#943389} with　\color{#812E85} 　\color{#6F2881} me　\color{#5D227C} read　\color{#4B1C78} first }}$ </sup></summary>
 <br>
 <sup>im on offtab mode most of the time doing homework watching youtube or drawing </sup>
 <br><br>
 <sup>talk to me i dont know who or how to start conversations with people i will mostly adapt my personality to people be playfully rude with me i do the same</sup>
+<br><br>
+<sup>i mostly block freely but basic dni and younger than 13yo and older than 21yo dni unless your friends with my friend or if important</sup>
+
    
  </details>
  </div>
