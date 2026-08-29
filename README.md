@@ -20,6 +20,7 @@
   <a href="https://github.com/7aeui"><sup>second main account</sup>
   <br>
   <a href="https://github.com/iItae"><sup>following account</sup>
+  
  </details>
  
 <img src="https://file.garden/amjClnAAXW4qEKsH/Untitled97_0017-23-11_20260829144053__fliter--x-rays__channel--red__mode--overlay.png" width="250" align="left"/>
@@ -29,11 +30,14 @@
 <div align="left">
   <img src="https://file.garden/amjClnAAXW4qEKsH/Untitled97_0017-23-11_20260829184433__fliter--x-rays__channel--red__mode--overlay.png" width=340" align="left">
  
-<br>‎<br><br><br>‎<br><br>
+<br>‎<br><br>
   <details>
     <summary><sup>${\textsf{\color{#CA4596} before　\color{#B83F92} u　\color{#A6398D} interact　\color{#943389} with　\color{#812E85} 　\color{#6F2881} me　\color{#5D227C} read　\color{#4B1C78} first }}$ </sup></summary>
-
+<br>
 bruh
 
   </details>
+  
+  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r3kkdkiskdefbnbzlba3bewt4a&cover_image=true&theme=default&show_offline=true&background_color=1b1d30&interchange=false&profanity=false&hide_remaster=false&bar_color=faffe9&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+
 </div>
