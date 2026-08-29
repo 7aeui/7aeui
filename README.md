@@ -26,7 +26,7 @@
 <img src="https://file.garden/amjClnAAXW4qEKsH/Untitled97_0017-23-11_20260829212839__fliter--x-rays__channel--red__mode--overlay.png" width="405" align="right"/>
 
 <div align="left">
-<br><br><br><br><br><br><br><br><br><img src="https://file.garden/amjClnAAXW4qEKsH/Untitled98_20260829194649__fliter--x-rays__channel--red__mode--overlay.png" width=345" align="left">
+<br><br><br><br><br><br><br><br><br><br><br><img src="https://file.garden/amjClnAAXW4qEKsH/Untitled98_20260829194649__fliter--x-rays__channel--red__mode--overlay.png" width=345" align="left">
 
  <br><br>
  
