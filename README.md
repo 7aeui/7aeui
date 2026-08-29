@@ -34,7 +34,10 @@
   <details>
     <summary><sup>${\textsf{\color{#CA4596} before　\color{#B83F92} u　\color{#A6398D} interact　\color{#943389} with　\color{#812E85} 　\color{#6F2881} me　\color{#5D227C} read　\color{#4B1C78} first }}$ </sup></summary>
 <br>
-bruh
+im on offtab mode most of the time doing homework watching youtube or drawing cuddling or interacting with me is always encouraged unless i have dni or my friend has dni bruh
+<br>
+talk to me i dont know who or how to start conversations with people i will mostly adapt my personality to people be playfully rude with me i do the same
+<br>
 
   </details>
   
