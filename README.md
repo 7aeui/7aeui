@@ -37,7 +37,7 @@
 <br><br>
 <sup>talk to me i dont know who or how to start conversations with people i will mostly adapt my personality to people be playfully rude with me i do the same</sup>
 <br><br>
-<sup>i mostly block freely but basic dni and younger than 13yo and older than 21yo dni unless your friends with my friend or if important</sup>
+<sup>i mostly block freely but basic dni, younger than 13yo dni unless it is important</sup>
 
    
  </details>
