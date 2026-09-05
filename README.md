@@ -17,7 +17,7 @@
   <br> <br>
    <sub>2.  my accounts wahh </sub>
   
-  <a href="https://github.com/7aeui"><sup>second main account</sup>
+  <a href="https://github.com/jeongtaeui"><sup>second main account</sup>
   <br>
   <a href="https://github.com/iItae"><sup>following account</sup>
   
